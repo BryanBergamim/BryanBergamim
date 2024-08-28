@@ -6,3 +6,5 @@
 
 ### Você pode entrar em contato pelo email abaixo⬇️
 bryanbergamim7@gmail.com
+
+![](https://media1.tenor.com/m/r3JFgqrSq-0AAAAd/diamond-pet-foods-diamond-pet-food.gif)
